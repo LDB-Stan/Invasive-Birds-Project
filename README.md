@@ -22,7 +22,7 @@ Native cavity nesters known to be the most impacted by House Sparrows are specie
 Purple Martins fall victim to both European Starlings and House Sparrows, which is often stated to be a contributing factor the decline in Purple Martin populations.  
 
 Eurasian Tree Sparrows are said to be limited to the area of St. Louis, MO and surrounding areas in Illinois and Iowa. While smaller and less aggressive than House Sparrows, there is evidence that they will attack and kill Eastern Bluebirds.
-*<A href = "https://nesthollow.com/eurasian-tree-sparrows-attack-bluebirds/" target = "_blank">Reference</a>*
+*[Reference](https://nesthollow.com/eurasian-tree-sparrows-attack-bluebirds/)*
 
 ## About this project
 
